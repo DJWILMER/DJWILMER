@@ -8,7 +8,7 @@
 _ 🎧Visita nuestra web oficial: https://wilmerdelgadocieza.blogspot.com/
 
 _📻DE TODO PARA TU EMISORA FM GRUPO WHATSAPP📻
-https://chat.whatsapp.com/GoK15RJQ0JI5pLjGEklqj2
+https://chat.whatsapp.com/HjONHx6yKRDJsT6LiTwKjF
 <!---
 DJWILMER/DJWILMER is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
